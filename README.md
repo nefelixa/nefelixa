@@ -1,3 +1,3 @@
-Νεφέλη Χατζησαββίδου
-ΑΕΜ:4109
-email:nefelics@csd.auth.gr
+Nefeli Chatzisavvidou
+my email: nefelixatzisavvidou@gmail.com 
+Greece
